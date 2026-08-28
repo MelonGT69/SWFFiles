@@ -1,0 +1,1 @@
+Sup. This is just a simple repo of SWF games to put on my website. There really is nothing else to it. Im not adding a license because I do not own the stuff that is on here. But otherwise thanks for wasting your time by reading this.
